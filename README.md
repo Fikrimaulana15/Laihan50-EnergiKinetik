@@ -1,0 +1,1 @@
+# Laihan50-EnergiKinetik
